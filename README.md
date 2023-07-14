@@ -1,3 +1,2 @@
 # Anodized-FPS-Unlocker
-
-Dont Steal or else i will copywrite
+If it fail's then idk what to do bruh just fix it
